@@ -1,5 +1,45 @@
 ## Hi there 👋
 
+
+
+
+
+
+
+
+
+
+I feel like you on this page...
+
+                                                                lost
+                      
+
+
+I'm new here and I want to know what is going on here
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <!--
 **DA-kar/DA-kar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
